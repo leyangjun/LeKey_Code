@@ -5,4 +5,4 @@ ni faxian le ma  ni xiande bu luo.
 hao ba.leyangjun kakak de la ha ni shuo ne.
 lejiawang ni de kuaile wo de jia.
 ddddd
-creating new branch is quick
+creating new branch is quick & simple
